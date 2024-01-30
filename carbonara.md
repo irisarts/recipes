@@ -3,12 +3,12 @@
 ## Ingredients:
 - 400g (14 oz) spaghetti
 - 150g (5 oz) pancetta or guanciale, diced
-- 3 large eggs
-- 1 cup grated Pecorino Romano cheese
+- 4 large egg yellow
+- 1 cup grated mozzerella
 - 1 cup grated Parmesan cheese
-- 2 cloves garlic, minced
-- Salt and black pepper to taste
+- 5 cloves garlic, minced
 - Fresh parsley, chopped (for garnish)
+- - salt and pepper to taste
 
 ## Instructions:
 
