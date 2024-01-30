@@ -8,7 +8,7 @@
 - 1 cup grated Parmesan cheese
 - 5 cloves garlic, minced
 - Fresh parsley, chopped (for garnish)
-- - salt and pepper to taste
+- Salt and pepper to taste
 
 ## Instructions:
 
