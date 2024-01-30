@@ -8,6 +8,7 @@
 - 1/2 cup rice vinegar
 - 2 tablespoons sugar
 - 1 teaspoon salt
+- 1 cup of pepper chili
 
 ### For the Filling:
 - Smoked eel fillets, thinly sliced
